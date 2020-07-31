@@ -1,6 +1,8 @@
 # prueba
-El evento de la prueba anterior me dejo traumada asi que dejare este gato de la suerte 
+The event of the previous test left me traumatized so I will leave this lucky cat
 
 (> " " <)
+
 ( ='o'= )
+
 -(,,)-(,,)-
